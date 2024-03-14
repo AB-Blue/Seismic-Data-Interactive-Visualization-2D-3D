@@ -43,6 +43,6 @@ Notes:
 --------------------------------------------------------------------------------------------------------------------------------------
 # More information:
 
-https:
+https://www.linkedin.com/feed/update/urn:li:activity:7173980301373644800/
 
-https:
+https://www.youtube.com/watch?v=Wnuo09CDXfw
